@@ -1,0 +1,16 @@
+# What people need to understand before they trust your profile
+
+Format: Vibrant Educate — Carousel (6)
+CTA: Save this
+
+## Caption
+
+You can make a profile look polished and still leave a stranger wondering whether they have understood it correctly.
+
+That small uncertainty matters. People feel more comfortable when they can quickly recognise their situation, understand what you offer, see one honest reason to believe you and know what to do next.
+
+Trust is rarely created by one impressive sentence. It grows when the page removes the questions a visitor should not have to ask.
+
+Save this for your next profile review.
+
+#profiletrust #brandclarity #instagramstrategy #profileoptimization #socialmediabranding

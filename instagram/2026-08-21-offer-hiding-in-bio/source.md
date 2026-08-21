@@ -1,0 +1,18 @@
+# Your offer is hiding in your bio
+
+Format: Branded Educate — Carousel (5)
+CTA: Fix yours
+
+Slide 4 uses a clearly labelled fictional example.
+
+## Caption
+
+You can know exactly what you sell and still describe it so broadly that a new visitor misses it.
+
+That happens because you read the bio with all the context in your head. You know what “creative support” includes. You know where the link leads. The stranger on your profile knows none of that.
+
+Make the offer visible before you make it clever: name the service, show the useful outcome and tell people what happens when they take the next step.
+
+Fix yours now, then read it once as a stranger.
+
+#instagrambio #offerclarity #profileoptimization #conversioncopy #brandmessaging

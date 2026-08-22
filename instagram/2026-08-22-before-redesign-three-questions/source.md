@@ -1,0 +1,16 @@
+# Before you redesign your feed, answer these three questions
+
+Format: Branded Educate — Carousel (5)
+CTA: Save this
+
+## Caption
+
+You can feel ready for a fresh feed and still be unsure what the new version is meant to fix.
+
+That uncertainty is worth listening to. A redesign can change the surface quickly, but it cannot decide the message, the next step or the parts of the brand people already recognise.
+
+Write the three answers before choosing colours or templates. They give every visual decision something to serve—and make it easier to know when the design is finished.
+
+Save this before your next feed redesign.
+
+#feedredesign #brandstrategy #instagrambranding #visualidentity #brandclarity

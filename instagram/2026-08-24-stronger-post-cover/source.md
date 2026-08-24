@@ -1,0 +1,16 @@
+# Why your best post deserves a stronger cover
+
+Format: Vibrant Educate — Carousel (5)
+CTA: Save this
+
+## Caption
+
+You can spend hours making a genuinely useful post and lose its chance in the smallest part of the design: the cover.
+
+A stranger does not know the value waiting on slide two. The first frame has to translate it into a clear reason to stop: a recognisable problem, a useful outcome and words that still work when the grid shrinks them.
+
+A stronger cover does not exaggerate the content. It makes the real value visible soon enough to be found.
+
+Save this before designing your next cover.
+
+#postcover #contentdesign #instagramcarousel #socialmediadesign #visualhierarchy

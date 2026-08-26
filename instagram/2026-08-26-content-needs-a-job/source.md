@@ -1,0 +1,16 @@
+# Your content needs a job before it needs a design
+
+Format: Vibrant Belief — Carousel (5)
+CTA: Save this
+
+## Caption
+
+You can spend a long time choosing the right layout and still feel unsure whether the post is worth publishing.
+
+That uncertainty often begins before the design. The post has not been given one clear job, so the hook, message and CTA are each trying to achieve something different.
+
+Choose the change you want first: recognition, understanding, belief or action. Once that decision is made, every creative choice has a direction to serve.
+
+Save this before designing your next post.
+
+#contentpurpose #contentstrategy #postdesign #contentplanning #socialmediacontent

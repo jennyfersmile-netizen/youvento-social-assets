@@ -1,0 +1,16 @@
+# Three posts every business should pin
+
+Format: Branded Educate — Carousel (5)
+CTA: Save this
+
+## Caption
+
+You can pin three strong posts and still make a new visitor assemble the story for themselves.
+
+The problem is rarely the quality of each post. It is the relationship between them. One should orient the visitor, one should make the offer easy to picture and one should provide an honest reason to believe it.
+
+When those three jobs are covered, the top of the profile becomes a short, useful journey instead of a collection of favourites.
+
+Save this before choosing your three pinned posts.
+
+#pinnedposts #instagramstrategy #profileoptimization #contentstrategy #brandclarity
